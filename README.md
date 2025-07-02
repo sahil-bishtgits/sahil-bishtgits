@@ -3,7 +3,7 @@
  A Business analyst sharing about my journey and learnings </br>
 👨🏼‍🎓Studied BTech from Bhagwan Parshuram Institute of Technology, New Delhi </br>
 💭currently learning about data analytics and developing project's </br>
-📫 you can reach me at **Sahilbisht020408@gamil.com** </br>
+📫 you can reach me at **Sahilbisht.work@gamil.com** </br>
 
 <!--📫 How to reach me **Sahilbisht020408@gamil.com**
 
